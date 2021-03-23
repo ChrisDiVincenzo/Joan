@@ -1,7 +1,5 @@
 # Joan
 
-## Joan
-
 Agender, AFAB, BFRB, overweight, eldest child, ADD, depression, anxiety, Gemini Sun Virgo Moon Capricorn Rising, doesn’t shave anything but their head, likes folk music, student for life, not a lot of debt yet, no credit, spent almost 2 years in and out of separate section 8 housing, 6 years of higher education, cold hands ... 
 
 Samie’s work engages the political importance of intimacy and minutia, their intersectional reality contrasted by the implications of a body and conditions they could never choose. They unpack the relationships and experiences that have developed as a result of this existence. A native New Yorker, with a family that’s lived in the United States for close to 100 years, her work explores dreams of housing equity, healthcare for all and systems of care that include unequivocally, every life on the planet, and those who will inhabit it once we are gone.
